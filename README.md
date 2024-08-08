@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ChandanKrv
-- 📫 How to reach me -> contact2ckv@gmail.com
+- 👋 Hi, Thank you for visiting my profile.
+- 📫 I am still working on this readme file, will be updated soon.
 
